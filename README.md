@@ -1,3 +1,5 @@
+<img src="https://madzilladesigns.com/wp-content/uploads/2026/03/MZ-FB-Banner.png" alt="Websites That Turn Visitors Into Inquiries | MadZilla Designs">
+
 > Built for agencies and businesses that care about performance, not just design.
 
 # Madzilla Designs
